@@ -1,0 +1,2 @@
+# deathzone-2.0
+EVEN BETTER THEN DEATHZONE 1.O.LIKE ALWAYS,WAAAAAAR!!!!!!!!!!!!!
